@@ -5,4 +5,4 @@ We have made a chronology of women artist with Wikipedia's help on twitch for 2 
 💶 MOULAGA https://www.Ko-fi.com/13bis
 
 🗄️ ARCHIVES https://www.youtube.com/channel/UCHT3gQQOQgO-WBFkq86SPkw
-📝 NEWS https://mastodon.social/@13bis / @13bis.bsky.social /  https://twitter.com/13bis2 / @13bis.bsky.social / 
+📝 NEWS https://mastodon.social/@13bis / @13bis.bsky.social /  https://twitter.com/13bis2 / 
