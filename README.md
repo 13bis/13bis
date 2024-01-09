@@ -1,4 +1,4 @@
-FR - 👋 Bonjour, nous sommes @13bis et @nibler_s. Nous avons fait une chronologie des femmes artistes pendant deux ans en collaboration en livestream sur twitch. Deux autres stream existe aussi du nom de Cheap stream et À l'arrache stream.
+FR - 👋 Bonjour, nous sommes @13bis et @nibler_s. Nous avons fait une chronologie des femmes artistes pendant deux ans en collaboration en livestream sur twitch. Deux autres stream existent aussi du nom de Cheap stream et À l'arrache stream.
 
 ENG - 👋 Hi, We are @13bis and @nibler_s We have made a chronology of women artist with Wikipedia's help on twitch for 2 years, this is the result.
 
